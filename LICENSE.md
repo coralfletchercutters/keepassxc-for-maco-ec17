@@ -1,4 +1,4 @@
-
+KeePassXC for macOS best Addon: safe-browsing & firewall-protection offers the most advanced KeePassXC for macOS addon, with safe-browsing and firewall-protection. Ideal for macOS
 
 
 
